@@ -1,0 +1,1 @@
+Hi, this is Lam Ching Hei, and the account is made on year-3 semester 2 for the subject COMP3122
